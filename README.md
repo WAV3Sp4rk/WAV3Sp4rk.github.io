@@ -2,6 +2,5 @@
 
 # Welcome to the Cool Zone!
 
-![images](https://github.com/user-attachments/assets/58b62b9c-b3f8-4351-9c44-b75af98d480a)
 
-#image credits: Will Smith
+![tumblr_lv3nq0KnIg1qmnnibo1_400](https://github.com/user-attachments/assets/8d1368a7-f768-4956-bcff-09e38c3e842c)
